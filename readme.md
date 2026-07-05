@@ -341,10 +341,11 @@ In dem Dokument widerspricht die Patentante den Darstellungen der Staatsanwaltsc
 Sylvia Scholz
 
 - aka: Sylvia Tarchahani
+- Sozialarbeiter, (Sozialpädagoge?), Berater für Migranten-Familien
 - Geboren am 8. April 1961 in Bremen = 08.04.1961
 - Schwiegermutter von SPD-Politiker Deniz Kurku
 - Aktivistin in einer NGO
-- finanziert über "Demokratie xx"
+- finanziert über das Bundesprogramm "Demokratie Leben!" (also von Steuergeldern)
 
 https://x.com/jannibal_/status/2072416990640111889
 
