@@ -770,6 +770,44 @@ scholz@verband-binationaler.de
 
 </blockquote>
 
+https://x.com/SHomburg/status/2073813990245818591
+
+<blockquote>
+
+Stefan Homburg @SHomburg
+
+Diese NGO-Aktivistin ist Schwiegermutter eines SPD-MdL. Sie chauffierte den 6-fachen Mörder von Stade zum Tatort, verhalf ihm zur Flucht und wurde durch Schüsse der Polizei gestoppt. Kein Haftbefehl, da sie weder Maskenatteste ausgestellt noch Demos organisiert hat.
+
+Hintergrund: Die StA ermittelt zwar gegen die Fluchthelferin wegen Beifhilfe zum Mord, sieht aber keine Fluchtgefahr.
+
+Michael Ballweg saß 9 Monate im Gefängnis, Prinz Reuß und seine Mitstreiter, die auf eine außerirdische Allianz hofften und keiner Fliege etwas zuleide taten, sind seit fast 4 Jahren inhaftiert. 
+
+Sylvia S. gehört halt zum rotgrünen Machtkartell. MP Lies (SPD) hat sich deutlich vor ihren Schwiegersohn Deniz Kurku gestellt. Kurku hatte übrigens Hülya Iri protegiert, die siebenstellig für ihre Migranten-NGO kassierte und wegen Untreue vielfach angezeigt wurde.
+
+![](img/Sylvia-Tarchahani.HMeq1LUXgAA1REb.jpeg)
+
+6:59 PM · Jul 5, 2026 · 15.9K Views
+
+</blockquote>
+
+https://x.com/FrauHodl/status/2073099300100317423
+
+<blockquote>
+
+FrauHodl @FrauHodl
+
+Ja, Sylvia Tarchahani.
+
+Sehr wahrscheinlich identisch mit Sylvia Scholz. 
+
+Verband binationaler Familien und Partnerschaften - iaf e.V., Bremen
+
+![](img/iaf-Bremen.HMUg0wpXEAEFZEw.jpeg)
+
+7:39 PM · Jul 3, 2026 · 1,528 Views
+
+</blockquote>
+
 Fatih steht nicht im [telefonbuch](https://github.com/milahu/telefonbuch-deutschland)...
 
 ```
