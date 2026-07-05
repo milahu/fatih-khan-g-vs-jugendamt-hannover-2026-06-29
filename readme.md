@@ -18,6 +18,27 @@ jeder tote von denen ist ein problem weniger.
 justizversagen = freibrief zur selbstjustiz.  
 tyrannenmord ist illegal aber legitim.
 
+> Hirnblutungen infolge eines möglichen Schütteltraumas
+
+> Misshandlung von Schutzbefohlenen
+
+tja. in meiner welt gehören kinder ihren eltern, und nicht dem staat.  
+also in meiner welt dürfen eltern ihre kinder auch foltern oder töten,  
+das ist nicht mein problem, und jede staatliche "lösung" macht das problem nur schlimmer.
+
+und: in meiner welt gibt es keine krankenversicherungen,  
+also wenn eltern ihr kind zum krüppel schlagen  
+und dann das kind ins krankenhaus bringen  
+damit ärzte das kind wieder "reparieren"  
+(spoiler: es wird nie wieder gesund)  
+dann sollen die eltern diese reparatur zu 100% selbst bezahlen  
+wenn das leben von ihrem kind so "wertvoll" ist
+
+> Mordmerkmale der Heimtücke und der niedrigen Beweggründe
+
+haha, solchen bullshit labern die immer wenn einer auf bullen schiesst  
+cops hassen copkiller, aber copkiller sind volkshelden
+
 https://www.mopo.de/im-norden/niedersachsen/blutbad-von-stade-drei-tage-vor-der-tat-schickt-die-patentante-dieses-mysterioese-schreiben/4862095
 
 <blockquote>
@@ -168,31 +189,6 @@ Ministerpräsident Olaf Lies erklärte, die Tat mache die gesamte Landesregierun
 Am 30. Juni 2026 kehrten rund 700 Menschen zu einer Trauerandacht in die St.-Wilhadi-Kirche ein.
 
 </blockquote>
-
----
-
-> Hirnblutungen infolge eines möglichen Schütteltraumas
-
-> Misshandlung von Schutzbefohlenen
-
-tja. in meiner welt gehören kinder ihren eltern, und nicht dem staat.  
-also in meiner welt dürfen eltern ihre kinder auch foltern oder töten,  
-das ist nicht mein problem, und jede staatliche "lösung" macht das problem nur schlimmer.
-
-und: in meiner welt gibt es keine krankenversicherungen,  
-also wenn eltern ihr kind zum krüppel schlagen  
-und dann das kind ins krankenhaus bringen  
-damit ärzte das kind wieder "reparieren"  
-(spoiler: es wird nie wieder gesund)  
-dann sollen die eltern diese reparatur zu 100% selbst bezahlen  
-wenn das leben von ihrem kind so "wertvoll" ist
-
-> Mordmerkmale der Heimtücke und der niedrigen Beweggründe
-
-haha, solchen bullshit labern die immer wenn einer auf bullen schiesst  
-cops hassen copkiller, aber copkiller sind volkshelden
-
----
 
 https://www.tagesspiegel.de/gesellschaft/panorama/sechs-menschen-in-stade-erschossen-staatsanwaltschaft-bestatigt-schutteltrauma-bei-der-tochter-des-tatverdachtigen-15773451.html
 
